@@ -1,6 +1,10 @@
 # みかんちゃん概念
 
+寝言は寝て言え 妄言に惑わされるな 世界はお前を望んでいない
+
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかみかみーん🍊</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1293933295927873536?ref_src=twsrc%5Etfw">August 13, 2020</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+-----
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">推すしかない <a href="https://t.co/iFEhWRAb9i">pic.twitter.com/iFEhWRAb9i</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1053575180268666881?ref_src=twsrc%5Etfw">October 20, 2018</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
