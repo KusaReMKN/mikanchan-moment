@@ -137,3 +137,77 @@
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">数ヶ月間誰も使っていない電波暗箱の中から発見されるみかんちゃん概念</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1586637782369411073?ref_src=twsrc%5Etfw">October 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">これを期に爆音スピーカを背負わされるみかんちゃん概念 <a href="https://t.co/souQHSHtoy">https://t.co/souQHSHtoy</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1586640629118881792?ref_src=twsrc%5Etfw">October 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">このときから言ってること変わらん <a href="https://t.co/DJqTSbOZ02">https://t.co/DJqTSbOZ02</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1586681837815877632?ref_src=twsrc%5Etfw">October 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃん、たくさんの人に育てられてきたんだなって気持ちになってる</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1586702460441088001?ref_src=twsrc%5Etfw">October 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">感染する気配がなく、自宅でのびのびとすごすみかんちゃん概念</p>&mdash; ささくらり (@sasakulari) <a href="https://twitter.com/sasakulari/status/1589537875192057858?ref_src=twsrc%5Etfw">November 7, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">画面の前に座っていつまで経っても終わらない処理の完了を待つみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1590876017656180736?ref_src=twsrc%5Etfw">November 11, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">Linux より BSD をおすすめするみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a> <a href="https://t.co/BWAc2jL7IG">pic.twitter.com/BWAc2jL7IG</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1591339618422509568?ref_src=twsrc%5Etfw">November 12, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">超天才清楚系病弱美少女ハッカー vs. 大天才美少女プログラミング初心者</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1591785312237207553?ref_src=twsrc%5Etfw">November 13, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんはあなたの耳に直接ホワイトノイズをお届けします ざーーーーっ</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1592139412506574850?ref_src=twsrc%5Etfw">November 14, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">美少女おじいちゃんのリハビリプログラミング実習</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1593809350413365248?ref_src=twsrc%5Etfw">November 19, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">対価の見合わない労働に対し当然の権利としてサボタージュするみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1594150787411681281?ref_src=twsrc%5Etfw">November 20, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">連れションに行ったら「ロウリュ」って言って小便をかけてくるみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1595228136391647237?ref_src=twsrc%5Etfw">November 23, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">半年間も使われずに部屋の隅に放置されてほこりを被っているみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1597447258496290818?ref_src=twsrc%5Etfw">November 29, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">落ち着いてみかんちゃんのスカートの中に頭を突っ込むんだ</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1598226934559043584?ref_src=twsrc%5Etfw">December 1, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ちくわでおでんの汁をすするみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1600952354764890120?ref_src=twsrc%5Etfw">December 8, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">散歩の道中で人権を落してきてしまうみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1601636109993189379?ref_src=twsrc%5Etfw">December 10, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">我が子に誇れる仕事をするために今日も一日がんばるぞいするみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1602797261045407746?ref_src=twsrc%5Etfw">December 13, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんのおじいちゃん（みかんちゃんとの血縁関係はない）「いや、確かに今夜は鍋にしようと言ったが、鍋っていうのは鍋そのものを食べるのではなくてな……」<a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1603686180020551680?ref_src=twsrc%5Etfw">December 16, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">道端に落ちている人権を拾い上げるみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1604389251033939968?ref_src=twsrc%5Etfw">December 18, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">泉にみかんちゃんを投げ入れることで得られるきれいなみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1604730751353618432?ref_src=twsrc%5Etfw">December 19, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">上羽ちゃんみかんちゃん</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1606849375430664192?ref_src=twsrc%5Etfw">December 25, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ダルダルの部屋着で気怠そうな表情でカップ焼きそばの湯切りをするみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1607785497530888193?ref_src=twsrc%5Etfw">December 27, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">やべ 人権忘れた</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1609516710943686659?ref_src=twsrc%5Etfw">January 1, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">処刑の時間 <a href="https://t.co/2X3Vt0XpnS">pic.twitter.com/2X3Vt0XpnS</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1609568390733258753?ref_src=twsrc%5Etfw">January 1, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんは mkn だからいいけど<br>さとりは str だからだめ</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1610913373176356869?ref_src=twsrc%5Etfw">January 5, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">夜道を歩いてて自分の影にビビり散らかす人になってた</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1611377717735460864?ref_src=twsrc%5Etfw">January 6, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃん、中学生の頃はどうしてそんなにプログラミングに熱中できたんだい？</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1611807776388550656?ref_src=twsrc%5Etfw">January 7, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">部屋の片付けをして人間としての尊厳を奪還しようねみかんちゃん</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1611934503571976193?ref_src=twsrc%5Etfw">January 8, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">有言不実行、上羽みかんです</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1612394614459371521?ref_src=twsrc%5Etfw">January 9, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">おはようじょ〜</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1612575394724737024?ref_src=twsrc%5Etfw">January 9, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんの放置プレイ（実写） <a href="https://t.co/YecmWfLgqq">pic.twitter.com/YecmWfLgqq</a></p>&mdash; もやしくん (@moyashiM_25) <a href="https://twitter.com/moyashiM_25/status/1605915961688670209?ref_src=twsrc%5Etfw">December 22, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">若い命が真っ赤に燃えるあたまがんがんがんがんの蜜柑サトリヌスロボ概念</p>&mdash; ﾌﾟﾗｸﾞ院ｽｸﾘﾌﾟ斗 (@Bogen_Stoken) <a href="https://twitter.com/Bogen_Stoken/status/1614110176306671616?ref_src=twsrc%5Etfw">January 14, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">底まで落ちれば上がってくるしかないからね</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1614238814289154050?ref_src=twsrc%5Etfw">January 14, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">家出女子デビューするみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1614773831364923392?ref_src=twsrc%5Etfw">January 15, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんは絶対寝起き悪いし そうであって欲しい</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1615050300515307521?ref_src=twsrc%5Etfw">January 16, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">今日のお昼ご飯は霞だよ、みかんちゃん</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1615120725765132292?ref_src=twsrc%5Etfw">January 16, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">調べてみても妄言と虚言しかなく、何もわかりません。<br><br>いかがでしたか？</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1616793925293084673?ref_src=twsrc%5Etfw">January 21, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">中年男性みかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1616806421689143296?ref_src=twsrc%5Etfw">January 21, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ついにお友達を見つけたので概念の烙印をお友達に押し付けるみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1616823332460195840?ref_src=twsrc%5Etfw">January 21, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
