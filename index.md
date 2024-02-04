@@ -225,3 +225,17 @@
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">書架に腰掛けて足をぶらぶらさせながらこっちに気づいて欲しそうにするちっちゃなみかんちゃん概念 <a href="https://twitter.com/hashtag/%E3%81%BF%E3%81%8B%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E6%A6%82%E5%BF%B5?src=hash&amp;ref_src=twsrc%5Etfw">#みかんちゃん概念</a></p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1644335097632673792?ref_src=twsrc%5Etfw">April 7, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ぷるぷるしていいよと言われたので痙攣しだすみかんちゃん概念</p>&mdash; KusaReMKN (@KusaReMKN) <a href="https://twitter.com/KusaReMKN/status/1648289430577500165?ref_src=twsrc%5Etfw">April 18, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">VRChat 上でデカい座標に行って振動するみかんちゃん概念</p>&mdash; yude (@yude_jp) <a href="https://twitter.com/yude_jp/status/1648290353869639681?ref_src=twsrc%5Etfw">April 18, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">食われみかんちゃん</p>&mdash; いろりーまんドラゴン (@irori_man_II) <a href="https://twitter.com/irori_man_II/status/1652502167507591169?ref_src=twsrc%5Etfw">April 30, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ペロペロみかんちゃん概念</p>&mdash; mikan_54951 (@mikan_54951) <a href="https://twitter.com/mikan_54951/status/1672279815242797056?ref_src=twsrc%5Etfw">June 23, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃん壊れた <a href="https://t.co/kCsN97Bhtq">pic.twitter.com/kCsN97Bhtq</a></p>&mdash; yank.nvim (@yanknvim) <a href="https://twitter.com/yanknvim/status/1672797171245252608?ref_src=twsrc%5Etfw">June 25, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんかわいいねなでなでしようかよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよしよし<br><br>は？？？お前誰？</p>&mdash; NyaRu (@NyaaaRuuZzz_117) <a href="https://twitter.com/NyaaaRuuZzz_117/status/1672956020149321733?ref_src=twsrc%5Etfw">June 25, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">みかんちゃんと 30億のデバイスで走るJAVA、今すぐダウンロード</p>&mdash; mikan_54951 (@mikan_54951) <a href="https://twitter.com/mikan_54951/status/1695930042768035905?ref_src=twsrc%5Etfw">August 27, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+<blockquote class="twitter-tweet"><p lang="qme" dir="ltr">🍊 <a href="https://t.co/YP8ZA0zU9P">pic.twitter.com/YP8ZA0zU9P</a></p>&mdash; おひといぬ (@oinuyoshi) <a href="https://twitter.com/oinuyoshi/status/1696790408515183103?ref_src=twsrc%5Etfw">August 30, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
